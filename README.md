@@ -1,1 +1,2 @@
-# Chulalongkorn-University-Demonstration-School-Towards-Global-Citizenship
+#Satit Chula Global  
+# Thiraphat Srichit 6/2 no: 19
